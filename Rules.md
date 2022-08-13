@@ -5,3 +5,4 @@
 1. Love yourself
 1. Work hard
 1. Eat well
+1. Shower (almost) everyday
